@@ -1,0 +1,1 @@
+Just messing around with Twitter and broadcasting upcoming TalkShoe shows
